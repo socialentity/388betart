@@ -1,22 +1,18 @@
-Welcome to Lumache's documentation!
+Nhà Cái 388bet – Link Vào Chính Thức Nhà Cái Cá Độ Bóng Đá Hàng Đầu Châu Á - 388bet.art
 ===================================
 
-**Lumache** (/lu'make/) is a Python library for cooks and food lovers
-that creates recipes mixing random ingredients.
-It pulls data from the `Open Food Facts database <https://world.openfoodfacts.org/>`_
-and offers a *simple* and *intuitive* API.
+Nhà cái `388bet <https://388bet.art/>`_ không chỉ là một hệ thống cá cược đỉnh cao, mà còn là điểm đến lí tưởng cho những người yêu thích cá độ bóng đá, casino và xổ số. Với sự đa dạng về trò chơi và dịch vụ chăm sóc khách hàng chuyên nghiệp, 388bet đã khẳng định vị thế của mình trong làng cá cược trực tuyến. Hãy đến với 388bet để trải nghiệm sự hấp dẫn và đẳng cấp từ những trò chơi cá cược đa dạng và phong phú. Chắc chắn bạn sẽ không hối hận khi chọn 388bet là điểm dừng chân cho niềm vui và may mắn!
 
-Check out the :doc:`usage` section for further information, including
-how to :ref:`installation` the project.
+Thông tin liên hệ:
 
-.. note::
+Địa chỉ: 70 Đ. Phan Bá Vành, Cổ Nhuế, Bắc Từ Liêm, Hà Nội
 
-   This project is under active development.
+Phone: 0349034075
 
-Contents
---------
+Email: 388betart@gmail.com
 
-.. toctree::
+Website: https://388bet.art/
 
-   usage
-   api
+#388bet #388betart #linkvao388bet #nhacai388bet
+
+Map: https://maps.app.goo.gl/E9Jm4BkJMmZ1KYWb8"
